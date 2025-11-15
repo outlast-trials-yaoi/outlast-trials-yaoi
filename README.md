@@ -1,11 +1,6 @@
-<div align="center"> COREY * 19 * HE/HIM
+<div align="center"> Worbey * 20 * He/him
                     
 ***
-I Don't Talk Much, I'm Sorry
-
-I HAVE SLIGHT ANXIETY... SO I don't talk first that much...
+i love outlast trials and dragon age :) 
 ***
-
-DNI under 16, proship, tcc, hazbin fans whatever whatever....... 
-***
-CURRENTLY INTO; outlast trials, dragon age, baldurs gate......... many more interests but i dont care to list them........
+im not normal about a lot of thing so im sorry if im offputting 👍 
